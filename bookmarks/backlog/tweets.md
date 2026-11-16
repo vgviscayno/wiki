@@ -1,0 +1,11 @@
+1. https://x.com/atmoio/status/2119525790723494116?a=mbzYPD3_14aL2k2oxNU
+2. https://x.com/voxyz_ai/status/2119444845890617507?a=Bmzs5-gq0tcnkzkxJW4
+3. https://x.com/steveruizok/status/2116552016218710389?a=geTo5e-T-fsmQkJDWLs
+4. https://x.com/jarredsumner/status/2117037940031496252?a=tIShX5QJeOOKKP-n1a8
+5. https://x.com/mattpocockuk/status/2113278944594325761?a=zs4-rA-bjxu2Z_DBsY0
+6. https://x.com/mattpocockuk/status/2111708560715292675?a=DqdofAb7TCm39G8iTpc
+7. https://x.com/gabriel1/status/2111489360264827150?a=h1-R6Dag9PPqsVUbIQ0
+8. https://x.com/sarahfim/status/2108298553823203613?a=djdbtcaN9OYvefwoorE
+9. https://x.com/emilkowalski/status/2106752670405099523?a=EJ38Tf5eAJOJHXXngoA
+10. https://x.com/atharvmixraw/status/2101626790578118689?a=QQHcOZoNlqIW07SZVvQ
+11. https://x.com/steve_yegge/status/2121671447810888185?a=Fd8H6sjZXHY3q6UeCcQ
